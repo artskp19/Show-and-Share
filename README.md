@@ -1,2 +1,2 @@
 # Show-and-Share
-Show and
+Show and Share นครินทร์  ฉันทะโส
